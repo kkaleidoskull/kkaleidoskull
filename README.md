@@ -1,3 +1,5 @@
+(i formatted this on pc im aware it looks like shit on mobile...)
+
 |ㅤㅤ|ㅤㅤㅤㅤ|ㅤㅤ|ㅤㅤ|
  
  ☆ㅤ|ㅤㅤㅤ ★ㅤㅤ|ㅤㅤ|
