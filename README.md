@@ -1,4 +1,4 @@
-(i formatted this on pc im aware it looks like shit on mobile...)
+(i formatted this on pc im aware it looks like shit on mobile)
 
 |ㅤㅤ|ㅤㅤㅤㅤ|ㅤㅤ|ㅤㅤ|
  
