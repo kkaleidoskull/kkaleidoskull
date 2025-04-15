@@ -33,6 +33,10 @@ dni(uf) ↴
 
 ⤷ any/all ships
 
+⤷ people who use the term irl to describe a c'link/kin etc (unless you actually experience delusions, please dont use this term; its disrespectful)
+
+⤷ people who whitewash characters
+
 ⤷ fnaf afton skins (eh mostly just bc little kids, aftons just iwc, some of yall are chill)
 
 ⤷ people who hate on fnaf hw/sb/etc bc they "arent the original" or "dont feel like fnaf" etc
@@ -50,6 +54,8 @@ pony town ↴
 ⤷ i am epileptic and mildly photosensitive, please dont spam move around me, especially at night with horn light on etc
 
 ⤷ please feel free to interact with me! im nice, i probably just wont int first :']
+
+⤷ i can be a little weird sometimes, but serious if i need to be! if i ever do/say anything that makes you uncomfortable, please lmk (im also pro harassment WHEN NECESSARY, and if that makes you uncomfortable, kindly dni)
 
 ───〃★
 
