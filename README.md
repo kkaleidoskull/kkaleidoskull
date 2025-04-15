@@ -45,7 +45,7 @@ pony town ↴
 
 ⤷ please dont cover me
 
-⤷ i am epiliptic and mildly photosensitive, please dont spam move around me, especially at night with horn light on etc
+⤷ i am epileptic and mildly photosensitive, please dont spam move around me, especially at night with horn light on etc
 
 ⤷ please feel free to interact with me! im nice, i probably just wont int first :']
 
