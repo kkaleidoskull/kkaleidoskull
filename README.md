@@ -39,7 +39,7 @@ dni(uf) ↴
 
 pony town ↴
 
-⤷ d+h always allowed and encouraged!
+⤷ c+h always allowed and encouraged!
 
 ⤷ dont copy my skins
 
