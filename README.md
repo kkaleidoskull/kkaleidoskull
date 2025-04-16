@@ -55,7 +55,7 @@ pony town ↴
 
 ⤷ please feel free to interact with me! im nice, i probably just wont int first :']
 
-⤷ i can be a little weird sometimes, but serious if i need to be! if i ever do/say anything that makes you uncomfortable, please lmk (im also pro harassment WHEN NECESSARY, and if that makes you uncomfortable, kindly dni)
+⤷ i can be a little weird sometimes, but serious if i need to be! if i ever do/say anything that makes you uncomfortable, please lmk (btw i am pro harassment, and if that makes you uncomfortable, kindly dni)
 
 ───〃★
 
