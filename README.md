@@ -41,6 +41,8 @@ dni(uf) ↴
 
 ⤷ people who hate on fnaf hw/sb/etc bc they "arent the original" or "dont feel like fnaf" etc
 
+⤷ hs fandom iwc
+
 ───〃★
 
 pony town ↴
