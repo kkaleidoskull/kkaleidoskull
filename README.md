@@ -17,7 +17,7 @@ about ↴
 
 ⤷ he/him / it/its
 
-⤷ 17 years old (august 15!)
+⤷ 17 years old (august 15)
 
 ⤷ questioning gender/sexuality
 
@@ -41,8 +41,6 @@ dni(uf) ↴
 
 ⤷ people who hate on fnaf hw/sb/etc bc they "arent the original" or "dont feel like fnaf" etc
 
-⤷ hs fandom iwc
-
 ───〃★
 
 pony town ↴
@@ -55,9 +53,9 @@ pony town ↴
 
 ⤷ i am epileptic and mildly photosensitive, please dont spam move around me, especially at night with horn light on etc
 
-⤷ feel free to interact with me! i love meeting people and making friends im just scared (i might be mean i might be nice just iwc ig)
+⤷ feel free to interact with me! i love meeting people and making friends im just scared (im usually nice i promise! however i am pro harassment and can be mean! pls just iwc or dni if this makes you uncomfortable)
 
-⤷ i can be a little weird sometimes, but serious if i need to be! if i ever do/say anything that makes you uncomfortable, please lmk (btw i am pro harassment, and if that makes you uncomfortable, kindly dni)
+⤷ i can be weird/mean just pls pls pls lmk if im making you uncomfortable
 
 ───〃★
 
