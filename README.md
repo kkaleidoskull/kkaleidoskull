@@ -55,7 +55,7 @@ pony town ↴
 
 ⤷ i am epileptic and mildly photosensitive, please dont spam move around me, especially at night with horn light on etc
 
-⤷ please feel free to interact with me! im nice, i probably just wont int first :']
+⤷ feel free to interact with me! i love meeting people and making friends im just scared (i might be mean i might be nice just iwc ig)
 
 ⤷ i can be a little weird sometimes, but serious if i need to be! if i ever do/say anything that makes you uncomfortable, please lmk (btw i am pro harassment, and if that makes you uncomfortable, kindly dni)
 
