@@ -53,7 +53,7 @@ pony town ↴
 
 ⤷ c+h always allowed and encouraged!
 
-⤷ dont copy my skins
+⤷ dont copy my skins (i know theyre simple, but still dont!)
 
 ⤷ please dont cover me
 
