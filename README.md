@@ -21,6 +21,8 @@ about ↴
 
 ⤷ questioning gender/sexuality
 
+⤷ hispanic! 🇭🇳
+
 ⤷ fictionkin / c'linker / age regressor / furry
 
 ⤷ asd / adhd / ocd / general anxiety disorder / epilepsy / dyslexia (please use tonetags w me!)
