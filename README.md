@@ -57,7 +57,7 @@ pony town ↴
 
 ⤷ dont copy my skins (i know theyre simple, but still dont!)
 
-⤷ please dont cover me
+⤷ touch/cover discomfort unless friend (cover comfort with friends, i love hiding behind you guys <3)
 
 ⤷ i am epileptic and mildly photosensitive, please dont spam move around me, especially at night with horn light on etc
 
