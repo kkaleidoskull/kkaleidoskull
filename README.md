@@ -42,7 +42,7 @@ if im in one of my very dark tinted skins, iwec
 
 when with friends i can be kinda mean, just iwc or whisp me or something
 
-feel free to int if im by myself! im more scared of you than you are of me :]
+feel free to int if im by myself! im more scared of you than you are of me :']
 
 ───〃★
 
