@@ -34,7 +34,7 @@ uh besides that i dont care too much, ill just block if needed
 
 **byi**
 
-im anti-proship and pro-harassment, when necessary
+im pro-harassment, when necessary
 
 asd , adhd , ocd , general anxiety disorder (pls use tonetags w me)
 
