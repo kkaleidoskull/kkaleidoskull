@@ -36,7 +36,7 @@ uh besides that i dont care too much, ill just block if needed
 
 im pro-harassment, when necessary
 
-asd , adhd , ocd , general anxiety disorder (pls use tonetags w me)
+asd , adhd , ocd , general anxiety disorder (pls use tonetags w me - also keep in mind im terrible at reading emotions!)
 
 if im in one of my very dark tinted skins, iwec
 
