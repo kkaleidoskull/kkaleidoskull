@@ -18,7 +18,7 @@ hispanic
 
 c'linker , fictre , agere , furry
 
-questioning gender/sexuality n other flags
+questioning objectum / autoromantic , genderfloren
 
 ───〃★
 
