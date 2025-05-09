@@ -18,7 +18,7 @@ hispanic
 
 c'linker , fictre , agere , furry
 
-questioning objectum / autoromantic , genderfloren
+vestiagum / amusrum objectum romantic , autoromantic , genderfloren
 
 ───〃★
 
