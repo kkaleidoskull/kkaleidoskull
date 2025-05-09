@@ -18,7 +18,7 @@ hispanic
 
 c'linker , fictre , agere , furry
 
-amusrum / quiltum objectum romantic , autoromantic , genderfloren
+polyamorous objectum romantic , autoromantic , genderfloren (paraphiles / radqueers DNI)
 
 ───〃★
 
