@@ -16,7 +16,7 @@ he/him / it/its
 
 hispanic
 
-c'linker , agere , furry
+c'linker , fictre , agere , furry
 
 questioning gender/sexuality n other flags
 
