@@ -58,6 +58,8 @@ touch / cover comf with friends and other safe ppl!
 
 cuddle comf!
 
+i love crowning people, if i crown you youre cool /pos
+
 ───〃★
 
 wip!!!
