@@ -63,3 +63,9 @@ i love crowning people, if i crown you youre cool /pos
 ───〃★
 
 wip!!!
+
+───〃★
+
+![IMG_4993](https://github.com/user-attachments/assets/410fc63c-d0be-46ff-9757-39e5f27a95bb)
+
+adding more soon :3
