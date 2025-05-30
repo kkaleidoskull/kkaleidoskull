@@ -10,6 +10,14 @@
 ![](otherk.gif)
 ![](demonk.gif)
 ![](selfs.gif)
-
-
-
+![](top.gif)
+![](olds.gif)
+![](lol.gif)
+![](itsme.gif)
+![](fkin.gif)
+![](charlie.gif)
+![](alec.gif)
+![](gay.gif)
+![](ace.gif)
+![](tnra.gif)
+![](hate.gif)
