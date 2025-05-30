@@ -21,3 +21,7 @@
 ![](ace.gif)
 ![](tnra.gif)
 ![](hate.gif)
+![](obj.gif)
+![](objjjj.gif)
+![](kissc.gif)
+![](kiss.gif)
