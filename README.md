@@ -7,7 +7,9 @@
 ![](c2e689dc707caa6338f6a80a4139e03ab9f64e95.gif)
 ![](plushob.gif)
 ![](agere.gif)
-
+![](otherk.gif)
+![](demonk.gif)
+![](selfs.gif)
 
 
 
