@@ -1,3 +1,5 @@
+HOW DO YOU MAKE BLINKIES BLINK
+
 ![image](https://github.com/user-attachments/assets/ade5fe8c-6fa4-4df6-b253-5eb807808fbc)
 ![image](https://github.com/user-attachments/assets/5c0fc6e9-49c8-44bc-a34e-d9e338ded984)
 ![image](https://github.com/user-attachments/assets/7c6892b6-cdce-4597-b379-9077bc0cfe0c)
