@@ -9,6 +9,8 @@
 ![](agere.gif)
 ![](otherk.gif)
 ![](demonk.gif)
+![](awooo.gif)
+![](im.gif)
 ![](selfs.gif)
 ![](top.gif)
 ![](lol.gif)
@@ -38,3 +40,7 @@
 ![](alexgg.gif)
 ![](skull.gif)
 ![](vc.gif)
+![](dnp.gif)
+![](sparkle.gif)
+![](pool.gif)
+
