@@ -1,4 +1,4 @@
-### my hoard giggles and runs away
+### drops my hoard giggles and runs away
 
 ![](you-are-not-your-intrusive-thoughts-04.gif)
 ![](recovering-05.gif)
