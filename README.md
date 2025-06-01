@@ -60,5 +60,15 @@
 ![](aro.gif)
 ![](auto.gif)
 ![](mlp.gif)
+![](feddy.png)
+![](dsar.gif)
+![](willy.gif)
+![](sprang.gif)
+![](foxy.gif)
+![](fnarf.gif)
+![](fna.gif)
+![](sd.png)
+![](jacks.gif)
+
 
 
