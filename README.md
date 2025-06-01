@@ -60,11 +60,5 @@
 ![](aro.gif)
 ![](auto.gif)
 ![](mlp.gif)
-![](e.gif)
-![](ee.gif)
-![](eee.gif)
-![](eeee.gif)
-![](eeeee.gif)
-![](eeeeee.gif)
-![](eg.gif)
+
 
