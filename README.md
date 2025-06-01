@@ -43,11 +43,13 @@
 ![](cab.gif)
 ![](rem.gif)
 ![](alexgg.gif)
+![](trick.gif)
 ![](skull.gif)
 ![](vc.gif)
 ![](dnp.gif)
 ![](sparkle.gif)
 ![](pool.gif)
+![](school.gif)
 ![](plex.gif)
 ![](nost.gif)
 ![](fuko.gif)
@@ -73,6 +75,7 @@
 ![](fed.png)
 ![](sd.png)
 ![](jacks.gif)
-
+![](alexg.png)
+![](hawaii.gif)
 
 
