@@ -57,7 +57,7 @@
 ![](objj.gif)
 ![](trna.gif)
 ![](aro.gif)
-![](IMG_5052.webp)
+![](auto.gif)
 ![](mlp.gif)
 ![](e.gif)
 ![](ee.gif)
