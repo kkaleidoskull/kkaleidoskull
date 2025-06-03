@@ -32,7 +32,6 @@
 ![](objjjj.gif)
 ![](kissc.gif)
 ![](kiss.gif)
-![](endo.gif)
 ![](bluey.gif)
 ![](tawog.gif)
 ![](shop.gif)
