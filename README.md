@@ -84,6 +84,8 @@
 ![](hawaii.gif)
 ![](fo.png)
 ![](fok.png)
+![](2d.png)
+![](pedo.gif)
 ![](stev.gif)
 ![](st.gif)
 ![](rain.png)
