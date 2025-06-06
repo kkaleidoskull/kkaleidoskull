@@ -1,5 +1,9 @@
 ### drops my hoard giggles and runs away
 
+<sub>i remember a few of these had proshippers dont use etc but i got most of these when i wasnt a proshipper and i forgor...</sub>
+
+<sub>ill find and delete them soon but this is a wip!</sub>
+
 ![](you-are-not-your-intrusive-thoughts-04.gif)
 ![](recovering-05.gif)
 ![](mi-is-ruining-my-life-01.gif)
@@ -32,6 +36,9 @@
 ![](objjjj.gif)
 ![](kissc.gif)
 ![](kiss.gif)
+![](ship.gif)
+![](fictt.gif)
+![](anti.gif)
 ![](bluey.gif)
 ![](tawog.gif)
 ![](shop.gif)
@@ -49,10 +56,14 @@
 ![](nost.gif)
 ![](fuko.gif)
 ![](ds.gif)
+![](dldi.gif)
 ![](vamp.gif)
 ![](helpy.gif)
 ![](fnar.gif)
 ![](dss.gif)
+![](pros.gif)
+![](form.gif)
+![](fict.gif)
 ![](objj.gif)
 ![](trna.gif)
 ![](aro.gif)
