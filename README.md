@@ -36,6 +36,7 @@
 ![](objjjj.gif)
 ![](kissc.gif)
 ![](kiss.gif)
+![](fictoo.gif)
 ![](ship.gif)
 ![](fictt.gif)
 ![](anti.gif)
