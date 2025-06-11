@@ -1,7 +1,7 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=runr4bb)
 
 <details> 
-  <summary>click to load graphics</summary>
+  <summary>click to load graphics :3</summary>
   
 ![](you-are-not-your-intrusive-thoughts-04.gif)
 ![](recovering-05.gif)
