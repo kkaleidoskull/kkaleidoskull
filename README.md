@@ -40,6 +40,7 @@
 ![](ship.gif)
 ![](fictt.gif)
 ![](anti.gif)
+![](sib.gif)
 ![](dark.gif)
 ![](bluey.gif)
 ![](tawog.gif)
