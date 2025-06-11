@@ -1,7 +1,8 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=runr4bb)
 
-WIP
-
+<details> 
+  <summary>click to load graphics</summary>
+  
 ![](you-are-not-your-intrusive-thoughts-04.gif)
 ![](recovering-05.gif)
 ![](mi-is-ruining-my-life-01.gif)
@@ -96,4 +97,4 @@ WIP
 ![](lemon.gif)
 ![](bill.png)
 ![](gf.gif)
-
+</details>
