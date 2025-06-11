@@ -1,8 +1,6 @@
-### drops my hoard giggles and runs away
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=runr4bb)
 
-<sub>i remember a few of these had proshippers dont use etc but i got most of these when i wasnt a proshipper and i forgor...</sub>
-
-<sub>ill find and delete them soon but this is a wip!</sub>
+WIP
 
 ![](you-are-not-your-intrusive-thoughts-04.gif)
 ![](recovering-05.gif)
