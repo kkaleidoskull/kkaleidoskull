@@ -113,4 +113,16 @@
 
 ![image](https://github.com/user-attachments/assets/000a58fa-6b7b-4494-a3d9-d08931f64b77)
 
-~~^ i couldnt find the artist frowns~~
+<sub> ~~^ i couldnt find the artist frowns~~ </sub>
+
+### if you are friends with any of the following people, please block me:
+
+@ZyncCollie
+
+@Therobotwinners
+
+@PrettyBumbIe
+
+@Nightlitmuse
+
+
