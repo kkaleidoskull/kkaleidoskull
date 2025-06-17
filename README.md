@@ -61,7 +61,9 @@
 ![](fuko.gif)
 ![](ds.gif)
 ![](dldi.gif)
+![](dr1.gif)
 ![](vamp.gif)
+![](dr2.gif)
 ![](helpy.gif)
 ![](fnar.gif)
 ![](dss.gif)
@@ -99,6 +101,9 @@
 ![](lemon.gif)
 ![](bill.png)
 ![](gf.gif)
+![](dr3.gif)
+![](tv.gif)
+![](tvv.gif)
 </details>
 
 ![image](https://github.com/user-attachments/assets/000a58fa-6b7b-4494-a3d9-d08931f64b77)
