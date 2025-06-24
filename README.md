@@ -118,15 +118,5 @@
 
 <sub> ~~^ i couldnt find the artist frowns~~ </sub>
 
-### if you are friends with any of the following people, please block me:
-
-@ZyncCollie
-
-@Therobotwinners
-
-@PrettyBumbIe
-
-@Nightlitmuse
-
-while i dont really have a dni, i want "freeshippers" and pro-harassment antis to stay away from me.
+### while i dont really have a dni, i want "freeshippers" and pro-harassment antis to stay away from me.
 
