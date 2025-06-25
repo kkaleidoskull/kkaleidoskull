@@ -111,12 +111,15 @@
 ![](rw2.gif)
 </details>
 
-![image](https://github.com/user-attachments/assets/000a58fa-6b7b-4494-a3d9-d08931f64b77)
+![image](https://github.com/user-attachments/assets/a045eb66-bb9b-4a96-b28e-98d5810777e9)
 
-![image](https://github.com/user-attachments/assets/e394083a-8a06-4832-9224-1fe78b97041d)
+
+![image](https://github.com/user-attachments/assets/61b8906f-3511-4d9a-8697-b2afd4791b9c)
 
 
 <sub> ~~^ i couldnt find the artist frowns~~ </sub>
 
-### while i dont really have a dni, i want "freeshippers" and pro-harassment antis to stay away from me.
+# byi
+
+wip
 
