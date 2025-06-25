@@ -134,3 +134,5 @@ im a gregory (fnaf sb & tftpp) irl. im a nonsharing yumeshipper. i ship myself w
 questioning gender/sexuality, so i wont list anything yet
 
 while i dont really have a dni, i want "freeshippers", pro-harassment antis and radqueers to stay away from me
+
+shipcourse dni. im not a system, and dont know my stance on any of that
