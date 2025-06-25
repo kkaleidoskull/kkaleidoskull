@@ -125,6 +125,6 @@ i overthink and read into EVERYTHING. im awful at reading people, and im also a 
 
 pretty much the only fandom im in/i care about is fnaf/dsaf. i wont get your references /silly
 
-im problematic, dni/block if you dont like that. im proship, profic and pro non-harmful paras
+im problematic, dni/block if you dont like that. im proship, profic and pro non-harmful paras (strictly anti-c for harmful paras)
 
 while i dont really have a dni, i want "freeshippers", pro-harassment antis and radqueers to stay away from me
