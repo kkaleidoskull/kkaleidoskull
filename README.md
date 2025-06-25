@@ -125,11 +125,11 @@ i overthink and read into EVERYTHING. im awful at reading people, and im also a 
 
 pretty much the only fandom im in/i care about is fnaf/dsaf. i wont get your references /silly
 
-im problematic, dni/block if you dont like that. im proship, profic and pro non-harmful paras
+im problematic, dni/block if you dont like that. im proship, profic and pro non-harmful paras (strictly anti-c for harmful paras)
 
-im an [evertween](https://ghostarchive.org/archive/PEkrR). however, i am almost bodily an adult
+im an [evertween](https://www.tumblr.com/search/evertween?src=recent_search). however, i am almost bodily an adult
 
-im a gregory (fnaf sb & tftpp) irl. im a nonsharing yumeshipper. i ship myself with cc/evan afton. i am NOT a pdf file. genuinely stop calling me this, its extremely upsetting
+im a gregory (fnaf sb & tftpp) irl. im a semisharing yumeshipper. i ship myself with cc/evan afton. i am NOT a pdf file. genuinely stop calling me this, its extremely upsetting
 
 questioning gender/sexuality, so i wont list anything yet
 
