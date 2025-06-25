@@ -127,4 +127,10 @@ pretty much the only fandom im in/i care about is fnaf/dsaf. i wont get your ref
 
 im problematic, dni/block if you dont like that. im proship, profic and pro non-harmful paras (strictly anti-c for harmful paras)
 
+im an [evertween](https://ghostarchive.org/archive/PEkrR). however, i am almost bodily an adult
+
+im a gregory (fnaf sb & tftpp) irl. im a nonsharing yumeshipper. i ship myself with cc/evan afton. i am NOT a pdf file. genuinely stop calling me this, its extremely upsetting
+
+questioning gender/sexuality, so i wont list anything yet
+
 while i dont really have a dni, i want "freeshippers", pro-harassment antis and radqueers to stay away from me
