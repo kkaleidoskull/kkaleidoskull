@@ -126,9 +126,11 @@
 
 i overthink and read into EVERYTHING. im awful at reading people, and im also a people pleaser. please iwc at all times and use tonetags with me!
 
-pretty much the only fandom im in/i care about is fnaf/dsaf. i wont get your references /silly
+pretty much the only fandom im in/i care about is fnaf/dsaf. i wont get your references /lh
 
 im problematic, dni/block if you dont like that. im proship, profic and pro non-harmful paras (strictly anti-c for harmful paras)
+
+i dark/comship to cope. i dont really want to talk about shipcourse
 
 im an [evertween](https://www.tumblr.com/search/evertween?src=recent_search). however, i am almost bodily an adult
 
@@ -136,6 +138,6 @@ im a gregory (fnaf sb & tftpp) irl. im a semisharing yumeshipper. i ship myself 
 
 questioning gender/sexuality, so i wont list anything yet
 
-while i dont really have a dni, i want "freeshippers" and pro-harassment antis to stay away from me. radqueers are on thin ice
+while i dont really have a dni, i want "freeshippers" and pro-harassment antis to stay away from me. i dont agree with radqueers but you can int as long as we dont talk about queercourse (and im not on your dni)
 
 syscourse dni. im not a system, and dont know my stance on any of that
