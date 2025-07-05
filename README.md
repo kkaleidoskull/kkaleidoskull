@@ -124,7 +124,7 @@
 
 # byi
 
-no dni, follow your own
+no dni, follow your own. ill ignore/block you if i feel the need to
 
 i overthink and read into EVERYTHING. im awful at reading people, and im also a people pleaser. please iwc at all times and use tonetags with me!
 
@@ -138,7 +138,7 @@ im an [evertween](https://www.tumblr.com/search/evertween?src=recent_search). ho
 
 im a gregory (fnaf sb & tftpp) irl. im a semisharing yumeshipper. i ship myself with cc/evan afton. i am NOT a pdf file. genuinely stop calling me this, its extremely upsetting
 
-he/him and masc terms. xenogender hoarder. objectum romantic, platonic and familial. fictoromantic, platonic and familial. questioning others
+he/him and masc terms. xenogender hoarder. objectum romantic, platonic and familial. fictoromantic, platonic and familial. sex repulsed hypersexual. undisclosed para(s).  questioning others
 
 while i dont really have a dni, i want "freeshippers" and pro-harassment antis to stay away from me. i dont agree with radqueers but you can int as long as we dont talk about queercourse (and im not on your dni)
 
