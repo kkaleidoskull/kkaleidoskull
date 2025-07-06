@@ -143,3 +143,5 @@ he/him and masc terms. xenogender hoarder. objectum romantic, platonic and famil
 while i dont really have a dni, i want "freeshippers" and pro-harassment antis to stay away from me. i dont agree with radqueers but you can int as long as we dont talk about queercourse (and im not on your dni)
 
 syscourse dni. im not a system, and dont know my stance on any of that
+
+dont reality check me or tell me to "get help". im AWARE im not gregory irl or in an irl relationship with evan. im GETTING HELP. dont assume things about me. also, its none of your business! 
