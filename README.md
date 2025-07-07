@@ -136,7 +136,7 @@ i dark/comship to cope. i dont really want to talk about shipcourse
 
 im an [evertween](https://www.tumblr.com/search/evertween?src=recent_search). however, i am almost bodily an adult
 
-im a gregory (fnaf sb & tftpp) irl. im a semisharing yumeshipper. i ship myself with cc/evan afton. i am NOT a pdf file. genuinely stop calling me this, its extremely upsetting
+im a gregory (fnaf sb & [tftpp](https://freddy-fazbears-pizza.fandom.com/wiki/Gregory_(Tales_from_the_Pizzaplex))) irl. im a semisharing yumeshipper. i ship myself with cc/evan afton. i am NOT a pdf file. genuinely stop calling me this, its extremely upsetting
 
 he/him and masc terms. xenogender hoarder. objectum romantic, platonic and familial. fictoromantic, platonic and familial. sex repulsed hypersexual. undisclosed para(s).  questioning others
 
