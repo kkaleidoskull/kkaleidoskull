@@ -160,4 +160,6 @@ safe people!!
 
 ♡ - erin
 
+♡ - fizz
+
 ily all licks /p safes can int when i have dni etc and i have hugee cuddle/hide/kiss comf w you guys. plspls dont be offended if youre a friend and arent on this list, it takes time! (i feel more comfy talking and venting to safes, let me know if you dont like that or want removed)
