@@ -136,7 +136,7 @@ i dark/comship to cope. i dont really want to talk about shipcourse
 
 im an [evertween](https://www.tumblr.com/search/evertween?src=recent_search). however, i am almost bodily an adult
 
-im a gregory (fnaf sb & [tftpp](https://freddy-fazbears-pizza.fandom.com/wiki/Gregory_(Tales_from_the_Pizzaplex))) irl. im a semisharing yumeshipper. i ship myself with cc/evan afton. i am NOT a pdf file. genuinely stop calling me this, its extremely upsetting
+im a gregory (fnaf sb & [tftpp](https://freddy-fazbears-pizza.fandom.com/wiki/Gregory_(Tales_from_the_Pizzaplex))) irl. im a semisharing yumeshipper. i ship myself with evan afton. i am NOT a MAP etc - im not attracted to irl kids. genuinely stop calling me this, its extremely upsetting (targeted)
 
 he/him and masc terms. xenogender hoarder. objectum romantic, platonic and familial. fictoromantic, platonic and familial. sex repulsed hypersexual. undisclosed para(s).  questioning others
 
@@ -144,7 +144,7 @@ while i dont really have a dni, i want "freeshippers" and pro-harassment antis t
 
 syscourse dni. im not a system, and dont know my stance on any of that
 
-dont reality check me or tell me to "get help". im AWARE im not gregory irl or in an irl relationship with evan. im GETTING HELP. dont assume things about me. also, its none of your business! 
+dont reality check me or tell me to "get help". im AWARE im not gregory irl or in an irl relationship with evan. im GETTING HELP. dont assume things about me. also, its none of your business! (targeted)
 
 ---
 
