@@ -145,3 +145,19 @@ while i dont really have a dni, i want "freeshippers" and pro-harassment antis t
 syscourse dni. im not a system, and dont know my stance on any of that
 
 dont reality check me or tell me to "get help". im AWARE im not gregory irl or in an irl relationship with evan. im GETTING HELP. dont assume things about me. also, its none of your business! 
+
+---
+
+safe people!!
+
+♡ - bean
+
+♡ - jen
+
+♡ - clementine
+
+♡ - cherub
+
+♡ - erin
+
+ily all licks /p safes can int when i have dni etc and i have hugee cuddle/hide/kiss comf w you guys. plspls dont be offended if youre a friend and arent on this list, it takes time! (i feel more comfy talking and venting to safes, let me know if you dont like that or want removed)
