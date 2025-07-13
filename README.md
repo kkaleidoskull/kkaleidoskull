@@ -128,6 +128,8 @@ no dni, follow your own. ill ignore/block you if i feel the need to
 
 i overthink and read into EVERYTHING. im awful at reading people, and im also a people pleaser. please iwc at all times and use tonetags with me!
 
+i dont really have my own personality so i tend to copy people. i act very differently around different people. i always try to be nice though PLS lmk if im bothering you or something. i wont be offended if you just tell me
+
 pretty much the only fandom im in/i care about is fnaf/dsaf. i wont get your references /lh
 
 im problematic, dni/block if you dont like that. im proship, profic and pro non-harmful paras (strictly anti-c for harmful paras)
