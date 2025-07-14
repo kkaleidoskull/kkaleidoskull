@@ -130,6 +130,8 @@ i overthink and read into EVERYTHING. im awful at reading people, and im also a 
 
 i dont really have my own personality so i tend to copy people. i act very differently around different people. i always try to be nice though PLS lmk if im bothering you or something. i wont be offended if you just tell me
 
+im not scary!! pls dont hesitate to interact w me. im more scared of you than you are of me /silly . if you like fnaf and or aftoncest bmf giggles
+
 pretty much the only fandom im in/i care about is fnaf/dsaf. i wont get your references /lh
 
 im problematic, dni/block if you dont like that. im proship, profic and pro non-harmful paras (strictly anti-c for harmful paras)
