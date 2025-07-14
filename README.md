@@ -142,7 +142,7 @@ im a gregory (fnaf sb & [tftpp](https://freddy-fazbears-pizza.fandom.com/wiki/Gr
 
 he/him and masc terms. xenogender hoarder. objectum romantic, platonic and familial. fictoromantic, platonic and familial. sex repulsed hypersexual. undisclosed para(s).  questioning others
 
-while i dont really have a dni, i want "freeshippers" and pro-harassment antis to stay away from me. i dont agree with radqueers but you can int as long as we dont talk about queercourse (and im not on your dni)
+while i dont really have a dni, i want "freeshippers" and pro-harassment antis to stay away from me. i dont agree with or support radqueers and am uncomfy with you all. iwec or just dni
 
 syscourse dni. im not a system, and dont know my stance on any of that
 
