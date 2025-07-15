@@ -126,6 +126,8 @@
 
 no dni, follow your own. ill ignore/block you if i feel the need to
 
+if you dont have proship dni, you cant get mad if i int with you :// pls i beg i like talking to people
+
 i overthink and read into EVERYTHING. im awful at reading people, and im also a people pleaser. please iwc at all times and use tonetags with me!
 
 i dont really have my own personality so i tend to copy people. i act very differently around different people. i always try to be nice though PLS lmk if im bothering you or something. i wont be offended if you just tell me
