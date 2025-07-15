@@ -176,7 +176,7 @@ ily all licks /p safes can int when i have dni etc and i have hugee cuddle/hide/
   <summary>for ex friends:</summary>
 you know who you are: please delete my name from all of your socials, especially public ones, such as your pinterest. im not going to interact with your pin anyways. you dont need to be bringing our PERSONAL drama into public spaces like this. please delete what you have about me on your strawpage. a lot of it is misinformation. please stop spreading this shit about me. youre crossing a boundary. im genuinely sorry if i crossed any of yours but that doesnt make this right. /
   
-you know who you are: stop trying to contact me. what youre doing is disgusting and i dont know why youre bringing me into this. it isnt my drama and it isnt my business. because of what youre doing there are rumors that were friends again. i dont want to be associated with ANY of you. please stop and work on your mental health, the way youre acting is concerning and worrying /gen 
+you know who you are: stop trying to contact me. what youre doing is disgusting and i dont know why youre bringing me into this. it isnt my drama and it isnt my business. i seperated myself from you all a long time ago. because of what youre doing there are rumors that were friends again. i dont want to be associated with ANY of you. please stop and work on your mental health, the way youre acting is concerning and worrying /gen 
 
 you know who you are: thank you for checking up on me. i genuinely appreciate it. when you contacted me i was doing especially bad, and reading through the messages again i realize i sounded a bit not ok. sorry. i hope youre doing well but please stay away from me from now on. 
 
