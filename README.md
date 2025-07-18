@@ -153,7 +153,7 @@ puhpandas
 
 <img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/f7524eea-4092-40e4-aafc-635c1b701ee3" />
 
-costcopunk
+costcopunk (the way they draw evan pls i want to kiss his little face </3)
 
 <img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/192ee2b5-bd43-4910-b7f3-996b24271590" />
 
@@ -181,7 +181,7 @@ unknown artist
 
 <img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/d9f3c6ea-1487-4a63-8fe1-3bc6ba6eebc4" />
 
-my old pfp its so great right :3
+my old pfp its so epic right :3
 
 </details>
 
