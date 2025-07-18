@@ -1,11 +1,13 @@
 updated pfp!! :p art by @tommsiii on twitter
 
+---
+
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=runr4bb)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31s3cguiatu7u5xht7775elutdnm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 <details> 
-  <summary>click to show graphics :3 (bright colors/flash tw and may be laggy)</summary>
+  <summary>graphics hoard (bright colors/flash tw and may be laggy)</summary>
   
 ![](you-are-not-your-intrusive-thoughts-04.gif)
 ![](recovering-05.gif)
@@ -126,13 +128,62 @@ updated pfp!! :p art by @tommsiii on twitter
 ![](fukn.png)
 </details>
 
-![image](https://github.com/user-attachments/assets/a045eb66-bb9b-4a96-b28e-98d5810777e9)
+<details> 
+  <summary>fav drawings hoard</summary>
+  
+  unknown artist
+  
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/f861972b-9bdb-4927-91d0-ab4aad744520" />
 
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/77337bc4-12c6-4f4b-b028-173f9770aa78" />
 
-![image](https://github.com/user-attachments/assets/61b8906f-3511-4d9a-8697-b2afd4791b9c)
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/02f7884a-4459-4acc-aa5b-7b5e295d7c24" />
 
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/6b4793a9-d649-4f5d-8366-3a97e10c4d13" />
 
-<sub> ~~^ i couldnt find the artist frowns~~ </sub>
+puhpandas
+
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/78b1e62c-0664-4012-a7b4-b35be29e73af" />
+
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/17cb442a-96cf-4f8c-96c1-e21ca4a1b1bf" />
+
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/3d704076-b1e7-40e5-87c1-075580233f1b" />
+
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/f7524eea-4092-40e4-aafc-635c1b701ee3" />
+
+costcopunk
+
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/192ee2b5-bd43-4910-b7f3-996b24271590" />
+
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/de4bfe34-0a2a-42ec-af75-129e6067e6a3" />
+
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/634a4f5e-6f46-415c-b120-1641d3c95495" />
+
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/268fcb6f-c3e6-4a54-a703-19e7dc70a10d" />
+
+hellourkittie
+
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/6d783ee7-268a-4b8c-aace-679177356ba2" />
+
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/35bdc5b0-4981-404e-bc34-8590e7502402" />
+
+mochiiniko
+
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/d0cb3043-7199-45b2-8eec-06435c435df9" />
+
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/a2d9aefe-9ae5-47f7-8448-160305c04fb2" />
+
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/df348222-e81b-4c25-934b-31c498e1d300" />
+
+unknown artist
+
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/d9f3c6ea-1487-4a63-8fe1-3bc6ba6eebc4" />
+
+my old pfp its so great right :3
+
+</details>
+
+---
 
 # byi
 
@@ -181,15 +232,3 @@ safe people!!
 ♡ - fizz
 
 ily all licks /p safes can int when i have dni etc and i have hugee cuddle/hide/kiss comf w you guys. plspls dont be offended if youre a friend and arent on this list, it takes time! (i feel more comfy talking and venting to safes, let me know if you dont like that or want removed)
-
----
-
-<details> 
-  <summary>for ex friends:</summary>
-you know who you are: please delete my name from all of your socials, especially public ones, such as your pinterest. im not going to interact with your pin anyways. you dont need to be bringing our PERSONAL drama into public spaces like this. please delete what you have about me on your strawpage. a lot of it is misinformation. please stop spreading this shit about me. youre crossing a boundary. im genuinely sorry if i crossed any of yours but that doesnt make this right. /
-  
-you know who you are: stop trying to contact me. what youre doing is disgusting and i dont know why youre bringing me into this. it isnt my drama and it isnt my business. i seperated myself from you all a long time ago. because of what youre doing there are rumors that were friends again. i dont want to be associated with ANY of you. please stop and work on your mental health, the way youre acting is concerning and worrying /gen 
-
-you know who you are: thank you for checking up on me. i genuinely appreciate it. when you contacted me i was doing especially bad, and reading through the messages again i realize i sounded a bit not ok. sorry. i hope youre doing well but please stay away from me from now on. 
-
-ill delete all of this soon. i just want this drama to be over with atp, its been over a month. im sorry i hurt you all. but the amount of uninvolved people youve involved makes me feel uncomfortable and unsafe. </details>
