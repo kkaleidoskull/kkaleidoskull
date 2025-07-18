@@ -131,7 +131,7 @@ updated pfp!! :p art by @tommsiii on twitter
 </details>
 
 <details> 
-  <summary>fav drawings hoard</summary>
+  <summary>fav drawings hoard (images load rlly small on mobile soz)</summary>
   
   unknown artist
   
