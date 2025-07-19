@@ -169,6 +169,12 @@ hellourkittie
 
 <img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/35bdc5b0-4981-404e-bc34-8590e7502402" />
 
+1azy._Arts
+
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/75507fd4-082f-4b7f-9c6a-88ea42077255" />
+
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/899666de-3a34-483f-bba8-9ef2f0ff18af" />
+
 mochiiniko
 
 <img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/d0cb3043-7199-45b2-8eec-06435c435df9" />
