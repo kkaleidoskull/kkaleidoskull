@@ -195,7 +195,7 @@ my old pfp its so epic right :3
 
 ---
 
-# byi
+# byi (THIS IS MESSY, WILL *HOPEFULLY* BE ORGANIZED SOON)
 
 no dni, follow your own. ill ignore/block you if i feel the need to
 
@@ -215,7 +215,7 @@ i dark/comship to cope. i dont really want to talk about shipcourse
 
 im an [evertween](https://www.tumblr.com/search/evertween?src=recent_search). however, i am almost bodily an adult
 
-im a gregory (fnaf sb & [tftpp](https://freddy-fazbears-pizza.fandom.com/wiki/Gregory_(Tales_from_the_Pizzaplex))) irl. im a semisharing yumeshipper. i ship myself with evan afton. i am NOT a map etc - im not attracted to irl kids. genuinely stop calling me this, its extremely upsetting (targeted)
+im a gregory (fnaf sb & [tftpp](https://freddy-fazbears-pizza.fandom.com/wiki/Gregory_(Tales_from_the_Pizzaplex))) irl. im a semisharing yumeshipper. i ship myself with evan afton. i am NOT a map etc - im not attracted to irl kids. genuinely stop calling me this, its extremely upsetting (targeted) ALSO! please refer to me as gregory! i am gregory! not very open to talking abt irl things rn bc real life is STRESSFUL! may go sv/nv :p so open to talking abt my life as gregory tho :D
 
 he/him and masc terms. xenogender hoarder. objectum romantic, platonic and familial. fictoromantic, platonic and familial. sex repulsed hypersexual. undisclosed para(s).  questioning others
 
