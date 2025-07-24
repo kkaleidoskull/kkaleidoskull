@@ -1,12 +1,12 @@
 updated pfp!! :p art by @tommsiii on twitter
 
----
+![](checkers.png)
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=runr4bb)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31s3cguiatu7u5xht7775elutdnm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
----
+![](checkers.png)
 
 <details> 
   <summary>graphics hoard (bright colors/flash tw and may be laggy)</summary>
@@ -193,7 +193,7 @@ my old pfp its so epic right :3
 
 </details>
 
----
+![](checkers.png)
 
 # byi (THIS IS MESSY, WILL *HOPEFULLY* BE ORGANIZED SOON)
 
@@ -225,7 +225,7 @@ syscourse dni. im not a system, and dont know my stance on any of that
 
 dont reality check me or tell me to "get help". im AWARE im not gregory irl or in an irl relationship with evan. im GETTING HELP. dont assume things about me. also, its none of your business! (targeted)
 
----
+![](checkers.png)
 
 safe people!!
 
