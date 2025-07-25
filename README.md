@@ -1,3 +1,5 @@
+<img width="540" height="41" alt="image" src="https://github.com/user-attachments/assets/2a5c2b32-90b4-46b6-9b33-df2b2aa02509" />
+
 updated pfp!! art by @tommsiii on twitter
 
 ![](checkers.png)
@@ -274,3 +276,6 @@ safe people!!
 ♡ - sam
 
 ily all licks /p safes can int when i have dni etc and i have hugee cuddle/hide/kiss comf w you guys. plspls dont be offended if youre a friend and arent on this list, it takes time! (i feel more comfy talking and venting to safes, let me know if you dont like that or want removed)
+
+<img width="540" height="41" alt="image" src="https://github.com/user-attachments/assets/2a5c2b32-90b4-46b6-9b33-df2b2aa02509" />
+
