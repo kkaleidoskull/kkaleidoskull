@@ -1,4 +1,4 @@
-updated pfp!! :p art by @tommsiii on twitter
+updated pfp!! art by @tommsiii on twitter
 
 ![](checkers.png)
 
@@ -208,35 +208,46 @@ my old pfp its so epic right :3
 
 ![](checkers.png)
 
-# byi (THIS IS MESSY, WILL *HOPEFULLY* BE ORGANIZED SOON)
+<details>
+  <summary>about me!</summary>
+  
+  call me gregory/greg or rab!
 
-no dni, follow your own. ill ignore/block you if i feel the need to
+  im an [evertween](https://www.tumblr.com/parxgender/776481213660774400/everkid-evertween-everteen?source=share). bodily 17
 
-if you dont have proship dni, you cant get mad if i int with you :// pls i beg i like talking to people
+  he/him prns and masc terms. xenogender hoarder
+
+  objectum, fictoromantic, hypersexual and undisclosed para(s)
+
+  im proship, profic and pro non-harmful paras. i call myself problematic, just dni/block if that bothers you!
+
+  im a gregory irl (fnaf [sb](https://freddy-fazbears-pizza.fandom.com/wiki/Gregory) and [tftpp](https://freddy-fazbears-pizza.fandom.com/wiki/Gregory_(Tales_from_the_Pizzaplex))). yes, i am getting help. please dont assume things about me
+
+  i yumeship with [evan afton](https://fivenightsatfreddys.fandom.com/wiki/Crying_Child). i see him as and call him my bf. this does NOT make me a pedo/MAP. yuck
+</details>
+
+<details>
+  <summary>byi</summary>
+  
+  dni: pro-harassment antis and "freeshippers". radqueers, ALL transids (personal comfort), harmful paras or any pro-c anti-rec paras. other than that, ill just ignore/block you if i feel the need to
+
+friendly reminder! i wont interact with you if im on your dni, and you shouldnt interact with me either!
 
 i overthink and read into EVERYTHING. im awful at reading people, and im also a people pleaser. please iwc at all times and use tonetags with me!
 
-i dont really have my own personality so i tend to copy people. i act very differently around different people. i always try to be nice though PLS lmk if im bothering you or something. i wont be offended if you just tell me
+i dont really have my own personality so i tend to copy people. i act very differently around different people
 
-im not scary!! pls dont hesitate to interact w me. im more scared of you than you are of me /silly . if you like fnaf and or aftoncest bmf giggles /nf
+pretty much the only fandom i care about is fnaf/dsaf. i most likely wont get your fandom references /lh
 
-pretty much the only fandom im in/i care about is fnaf/dsaf. i wont get your references /lh
+i dark/comship for coping reasons. i dont have to explain anything to you unless i want to
 
-im problematic, dni/block if you dont like that. im proship, profic and pro non-harmful paras (strictly anti-c for harmful paras)
+syscourse dni. im not a system and dont know my stance on any of that. i do have a friend who is an endo system, so dni if you dont like that!
 
-i dark/comship to cope. i dont really want to talk about shipcourse
+DONT reality check me or tell me to get help. im AWARE im not gregory irl or in an irl relationship with evan. im GETTING HELP. again, dont assume things about me, and if you dont agree with me, just leave me alone
 
-im an [evertween](https://www.tumblr.com/search/evertween?src=recent_search). however, i am almost bodily an adult
+also! dear antis: i have a j*b, i shower EVERY DAY, and im in therapy :3 now shoo
 
-im a gregory (fnaf sb & [tftpp](https://freddy-fazbears-pizza.fandom.com/wiki/Gregory_(Tales_from_the_Pizzaplex))) irl. im a semisharing yumeshipper. i ship myself with evan afton. i am NOT a map etc - im not attracted to irl kids. genuinely stop calling me this, its extremely upsetting (targeted) ALSO! please refer to me as gregory! i am gregory! not very open to talking abt irl things rn bc real life is STRESSFUL! may go sv/nv :p so open to talking abt my life as gregory tho :D
-
-he/him and masc terms. xenogender hoarder. objectum romantic, platonic and familial. fictoromantic, platonic and familial. sex repulsed hypersexual. undisclosed para(s).  questioning others
-
-while i dont really have a dni, i want "freeshippers" and pro-harassment antis to stay away from me. i dont agree with or support radqueers and am uncomfy with you all. iwec or just dni
-
-syscourse dni. im not a system, and dont know my stance on any of that
-
-dont reality check me or tell me to "get help". im AWARE im not gregory irl or in an irl relationship with evan. im GETTING HELP. dont assume things about me. also, its none of your business! (targeted)
+</details>
 
 ![](checkers.png)
 
