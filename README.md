@@ -107,6 +107,7 @@ updated pfp!! art by @tommsiii on twitter
 ![](augh.png)
 ![](fed.png)
 ![](grfred.gif)
+![](freddy.gif)
 ![](left.gif)
 ![](leftt.gif)
 ![](mikee.png)
