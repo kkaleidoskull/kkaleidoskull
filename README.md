@@ -235,7 +235,7 @@ my old pfp its so epic right :3
 <details>
   <summary>byi</summary>
   
-  dni: pro-harassment antis and "freeshippers". radqueers, ALL transids (personal comfort), harmful paras or any pro-c anti-rec paras. other than that, ill just ignore/block you if i feel the need to
+  dni: pro-harassment antis and "freeshippers". radqueers, ALL transids (personal comfort), harmful paras or any pro-c anti-rec paras. people who dont respect td/tt etc. other than that, ill just ignore/block you if i feel the need to
 
 friendly reminder! i wont interact with you if im on your dni, and you shouldnt interact with me either!
 
