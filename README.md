@@ -228,6 +228,8 @@ my old pfp its so epic right :3
   im a gregory irl (fnaf [sb](https://freddy-fazbears-pizza.fandom.com/wiki/Gregory) and [tftpp](https://freddy-fazbears-pizza.fandom.com/wiki/Gregory_(Tales_from_the_Pizzaplex))). yes, i am getting help. please dont assume things about me
 
   i yumeship with [evan afton](https://fivenightsatfreddys.fandom.com/wiki/Crying_Child). i see him as and call him my bf. this does NOT make me a pedo/MAP. yuck
+
+  #1 glamrock freddy simp /silly
 </details>
 
 <details>
