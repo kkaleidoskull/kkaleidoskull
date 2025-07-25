@@ -215,7 +215,7 @@ my old pfp its so epic right :3
 ![](checkers.png)
 
 <details>
-  <summary>about me!</summary>
+  <summary>about me</summary>
   
   call me gregory/greg or rab!
 
