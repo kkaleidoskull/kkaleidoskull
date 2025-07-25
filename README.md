@@ -142,6 +142,9 @@ updated pfp!! art by @tommsiii on twitter
 ![](kata.gif)
 ![](anim.png)
 ![](fukn.png)
+![](moth3.png)
+![](moth.png)
+![](moth2.png)
 </details>
 
 <details> 
