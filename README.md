@@ -257,6 +257,21 @@ also! dear antis: i have a j*b, i shower EVERY DAY, and im in therapy :3 now sho
 
 </details>
 
+<details>
+  <summary>pt stuff</summary>
+  
+  almost always afk, offtab or spec
+
+  c+h freely anyone! (unless i have dni/dnt etc ofc)
+
+  DONT copy my skins
+
+  general cover discomfort unless safe/friend
+
+  im in a friends party, so i wont be able to join your party for supporter stuff etc
+  
+</details>
+
 ![](checkers.png)
 
 safe people!!
