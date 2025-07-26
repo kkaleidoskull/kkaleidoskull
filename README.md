@@ -225,7 +225,7 @@ my old pfp its so epic right :3
 
   objectum, fictoromantic, hypersexual and undisclosed para(s)
 
-  im proship, profic and pro non-harmful paras. i call myself problematic, just dni/block if that bothers you!
+  im proship, profic, pro non-harmful paras and pro contradictory labels. i call myself problematic, just dni/block if that bothers you!
 
   im a gregory irl (fnaf [sb](https://freddy-fazbears-pizza.fandom.com/wiki/Gregory) and [tftpp](https://freddy-fazbears-pizza.fandom.com/wiki/Gregory_(Tales_from_the_Pizzaplex))). yes, i am getting help. please dont assume things about me
 
