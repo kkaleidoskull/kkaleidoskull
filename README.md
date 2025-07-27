@@ -276,19 +276,19 @@ also! dear antis: i have a j*b, i shower EVERY DAY, and im in therapy :3 now sho
 
 safe people!!
 
-♡ - bean
+♡ - bean (@greenbeanx3)
 
-♡ - jen
+♡ - jen (@ccherrypie)
 
-♡ - clementine
+♡ - clementine (@icanthearyouleftmeentwined)
 
-♡ - cherub
+♡ - cherub (@PrettyCherub)
 
-♡ - erin
+♡ - erin (@GothicCowboy)
 
-♡ - fizz
+♡ - fizz (@FiZZiEP0P)
 
-♡ - sam
+♡ - sam (@mychem3ye)
 
 ily all licks /p safes can int when i have dni etc and i have hugee cuddle/hide/kiss comf w you guys. plspls dont be offended if youre a friend and arent on this list, it takes time! (i feel more comfy talking and venting to safes, let me know if you dont like that or want removed)
 
