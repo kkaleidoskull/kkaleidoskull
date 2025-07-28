@@ -149,8 +149,9 @@ updated pfp!! art by @tommsiii on twitter
 ![](moth2.png)
 </details>
 
-<img width="50%" height="50%" alt="image" src="https://github.com/user-attachments/assets/9e528509-b256-4169-93ef-f2357b6ee31a" />
-<img width="50%" height="50%" alt="image" src="https://github.com/user-attachments/assets/ffd56d8c-0aed-4fda-8c65-0d317aa8d263" />
+<img width="50%" height="50%" alt="image" src="https://github.com/user-attachments/assets/a57b7868-6509-4e3e-bd77-8096424bd15c" />
+
+art by @mochiiniko on tumblr
 
 ![](checkers.png)
 
