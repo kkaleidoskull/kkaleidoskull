@@ -210,6 +210,8 @@ also! dear antis: i have a j*b, i shower EVERY DAY, and im in therapy :3 now sho
   general cover discomfort unless safe/friend
 
   im in a friends party, so i wont be able to join your party for supporter stuff etc
+
+  i know a lot of people have me blocked, so i very likely could be sitting on someone! if i am, please lmk :')
   
 </details>
 
