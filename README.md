@@ -149,7 +149,7 @@ updated pfp!! art by @tommsiii on twitter
 ![](moth2.png)
 </details>
 
-<img width="50%" height="50%" alt="image" src="https://github.com/user-attachments/assets/a57b7868-6509-4e3e-bd77-8096424bd15c" />
+<img width="60%" height="60%" alt="image" src="https://github.com/user-attachments/assets/a57b7868-6509-4e3e-bd77-8096424bd15c" />
 
 art by @mochiiniko on tumblr
 
