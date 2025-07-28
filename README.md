@@ -149,68 +149,8 @@ updated pfp!! art by @tommsiii on twitter
 ![](moth2.png)
 </details>
 
-<details> 
-  <summary>fav drawings hoard (images load rlly small on mobile)</summary>
-  
-  unknown artist
-  
-<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/f861972b-9bdb-4927-91d0-ab4aad744520" />
-
-<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/77337bc4-12c6-4f4b-b028-173f9770aa78" />
-
-<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/02f7884a-4459-4acc-aa5b-7b5e295d7c24" />
-
-<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/6b4793a9-d649-4f5d-8366-3a97e10c4d13" />
-
-puhpandas
-
-<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/78b1e62c-0664-4012-a7b4-b35be29e73af" />
-
-<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/17cb442a-96cf-4f8c-96c1-e21ca4a1b1bf" />
-
-<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/3d704076-b1e7-40e5-87c1-075580233f1b" />
-
-<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/f7524eea-4092-40e4-aafc-635c1b701ee3" />
-
-costcopunk (the way they draw evan pls i want to kiss his little face </3)
-
-<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/192ee2b5-bd43-4910-b7f3-996b24271590" />
-
-<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/de4bfe34-0a2a-42ec-af75-129e6067e6a3" />
-
-<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/634a4f5e-6f46-415c-b120-1641d3c95495" />
-
-<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/268fcb6f-c3e6-4a54-a703-19e7dc70a10d" />
-
-hellourkittie
-
-<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/8ab78d90-9d7c-40d7-9f7d-e3a8035aec58" />
-
-<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/6d783ee7-268a-4b8c-aace-679177356ba2" />
-
-<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/35bdc5b0-4981-404e-bc34-8590e7502402" />
-
-1azy._Arts
-
-<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/75507fd4-082f-4b7f-9c6a-88ea42077255" />
-
-<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/899666de-3a34-483f-bba8-9ef2f0ff18af" />
-
-mochiiniko
-
-<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/d0cb3043-7199-45b2-8eec-06435c435df9" />
-
-<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/a2d9aefe-9ae5-47f7-8448-160305c04fb2" />
-
-<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/df348222-e81b-4c25-934b-31c498e1d300" />
-
-unknown artist
-
-<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/d9f3c6ea-1487-4a63-8fe1-3bc6ba6eebc4" />
-
-my old pfp its so epic right :3
-
-</details>
+<img width="50%" height="50%" alt="image" src="https://github.com/user-attachments/assets/9e528509-b256-4169-93ef-f2357b6ee31a" />
+<img width="50%" height="50%" alt="image" src="https://github.com/user-attachments/assets/ffd56d8c-0aed-4fda-8c65-0d317aa8d263" />
 
 ![](checkers.png)
 
