@@ -178,7 +178,7 @@ art by @mochiiniko on tumblr
 <details>
   <summary>byi</summary>
   
-  dni: pro-harassment antis and "freeshippers". radqueers, ALL transids (personal comfort), harmful paras or any pro-c anti-rec paras. people who dont respect td/tt etc. other than that, ill just ignore/block you if i feel the need to
+  dni: pro-harassment antis and "freeshippers". radqueers, any harmful/pro-c anti-rec paras, harmful transids. people who dont respect td/tt etc. gregory doubles/if youre in a gregory skin. other than that, ill just ignore/block you if i feel the need to
 
 friendly reminder! i wont interact with you if im on your dni, and you shouldnt interact with me either!
 
