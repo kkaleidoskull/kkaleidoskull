@@ -194,7 +194,7 @@ syscourse dni. im not a system and dont know my stance on any of that. i do have
 
 DONT reality check me or tell me to get help. im AWARE im not gregory irl or in an irl relationship with evan. im GETTING HELP. again, dont assume things about me, and if you dont agree with me, just leave me alone
 
-also! dear antis: i have a j*b, i shower EVERY DAY, and im in therapy :3 now shoo
+also! dear antis: i have a j*b, i shower EVERY DAY, and im in therapy :3 now shoo (ALSO ALSO stop complaining about proshippers in the fnaf fandom. fnaf has always had weird ships. FNAF SHIPS WILL ALWAYS BE COMSHIPS. and its literally a child murder game, why are ships suddenly the issue? if youre concerned about "fiction=reality", WORRY ABOUT THE CHILD MURDERS. and even if thats not your reason or youre just a hater, whatever, proshippers have been and will always be in fandoms. you arent so entitled to get the fandom all to yourself)
 
 </details>
 
