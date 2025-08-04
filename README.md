@@ -56,6 +56,8 @@ updated pfp!! art by @tommsiii on twitter
 ![](anti.gif)
 ![](dd.gif)
 ![](sib.gif)
+![](inc.gif)
+![](com.gif)
 ![](dark.gif)
 ![](bluey.gif)
 ![](tawog.gif)
@@ -166,7 +168,7 @@ art by @mochiiniko on tumblr
 
   objectum, fictoromantic, hypersexual and undisclosed para(s)
 
-  im proship, profic, pro non-harmful paras and pro contradictory labels. i call myself problematic, just dni/block if that bothers you!
+  im proship, profic, pro kotocons, pro non-harmful paras and pro contradictory labels. i call myself problematic, just dni/block if that bothers you!
 
   im a gregory irl (fnaf [sb](https://freddy-fazbears-pizza.fandom.com/wiki/Gregory) and [tftpp](https://freddy-fazbears-pizza.fandom.com/wiki/Gregory_(Tales_from_the_Pizzaplex))). yes, i am getting help. please dont assume things about me
 
@@ -195,6 +197,8 @@ syscourse dni. im not a system and dont know my stance on any of that. i do have
 DONT reality check me or tell me to get help. im AWARE im not gregory irl or in an irl relationship with evan. im GETTING HELP. again, dont assume things about me, and if you dont agree with me, just leave me alone
 
 also! dear antis: i have a j*b, i shower EVERY DAY, and im in therapy :3 now shoo (ALSO ALSO stop complaining about proshippers in the fnaf fandom. fnaf has always had weird ships. FNAF SHIPS WILL ALWAYS BE COMSHIPS. and its literally a child murder game, why are ships suddenly the issue? if youre concerned about "fiction=reality", WORRY ABOUT THE CHILD MURDERS. and even if thats not your reason or youre just a hater, whatever, proshippers have been and will always be in fandoms. you arent so entitled to get the fandom all to yourself)
+
+also also *also*, while i hate that this has to be said, i do NOT support any darkship/fic content (incest, pedophilia, grooming, etc etc) irl. and if you do, FUCK OFF. EW. 
 
 </details>
 
