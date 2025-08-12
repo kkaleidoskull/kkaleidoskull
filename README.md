@@ -225,8 +225,6 @@ safe people!!
 
 ♡ - bean (@greenbeanx3)
 
-♡ - jen (@ccherrypie)
-
 ♡ - clementine (@icanthearyouleftmeentwined)
 
 ♡ - cherub (@PrettyCherub)
