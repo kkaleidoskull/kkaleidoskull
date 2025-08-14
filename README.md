@@ -180,7 +180,7 @@ art by @mochiiniko on tumblr
 <details>
   <summary>byi</summary>
   
-  dni: pro-harassment antis and "freeshippers". radqueers, any harmful/pro-c anti-rec paras, harmful transids. people who dont respect td/tt etc. gregory doubles/if youre in a gregory skin. other than that, ill just ignore/block you if i feel the need to
+  dni: pro-harassment antis and "freeshippers". radqueers, any pro-c anti-rec harmful paras or harmful paras in general, harmful transids. people who dont respect td/tt etc. gregory doubles/if youre in a gregory skin. ex friends/friends of ex friends. other than that, ill just ignore/block you if i feel the need to
 
 friendly reminder! i wont interact with you if im on your dni, and you shouldnt interact with me either!
 
@@ -190,7 +190,7 @@ i dont really have my own personality so i tend to copy people. i act very diffe
 
 pretty much the only fandom i care about is fnaf/dsaf. i most likely wont get your fandom references /lh
 
-i dark/comship for coping reasons. i dont have to explain anything to you unless i want to
+i dark/comship for coping reasons. i dont have to explain anything to you unless i want to. however i also do NOT believe you have to have trauma to darkship etc. ship whataver u want for whatever reason!! be a problematic freak!! just dont hurt people :)
 
 syscourse dni. im not a system and dont know my stance on any of that. i do have a friend who is an endo system, so dni if you dont like that!
 
@@ -238,6 +238,8 @@ safe people!!
 ily all licks /p safes can int when i have dni etc and i have hugee cuddle/hide/kiss comf w you guys. plspls dont be offended if youre a friend and arent on this list, it takes time! (i feel more comfy talking and venting to safes, let me know if you dont like that or want removed)
 
 IF ANY SAFES WANT ME TO MAKE U A SKIN, PLS ASK! :3
+
+protree psps ily guys ur all so awesome /p /hvypos
 
 <img width="540" height="41" alt="image" src="https://github.com/user-attachments/assets/2a5c2b32-90b4-46b6-9b33-df2b2aa02509" />
 
