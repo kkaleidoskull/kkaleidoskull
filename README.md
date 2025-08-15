@@ -162,7 +162,7 @@ art by @mochiiniko on tumblr
   
   call me gregory/greg or rab!
 
-  im an [evertween](https://www.tumblr.com/parxgender/776481213660774400/everkid-evertween-everteen?source=share). bodily 17
+  im an [evertween](https://www.tumblr.com/parxgender/776481213660774400/everkid-evertween-everteen?source=share). bodily 18
 
   he/him prns and masc terms. xenogender hoarder
 
