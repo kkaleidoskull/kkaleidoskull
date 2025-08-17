@@ -1,5 +1,3 @@
-⚠️IMPORTANT!!! please block @ccherrypie on github and do not interact with him. a doc is in the works as of now and until it is finished, i will keep this disclaimer here. he has done some disgusting things towards minors + a lot more, and is currently going around playing victim and lying, even though we do have evidence. DO NOT HARASS OR CONTACT HIM.
-
 <img width="540" height="41" alt="image" src="https://github.com/user-attachments/assets/2a5c2b32-90b4-46b6-9b33-df2b2aa02509" />
 
 updated pfp!! art by @tommsiii on twitter
