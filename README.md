@@ -2,6 +2,8 @@
 
 updated pfp!! art by @tommsiii on twitter
 
+[callout doc on jensen/@ccherrypie](https://docs.google.com/document/d/1PZBPPCn5mdzmKCY0bvNtKniAR_rKWLjFJCnQf0ii8yg/edit?usp=sharing)
+
 ![](checkers.png)
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=runr4bb)
