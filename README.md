@@ -153,6 +153,33 @@ updated pfp!! art by @tommsiii on twitter
 ![](moth2.png)
 </details>
 
+<details> 
+
+<summary>my fursona!</summary>
+
+name: tattle
+
+species: canine
+
+gender: male/masc
+
+age: puppy
+
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/08475576-932b-48f0-850b-fb0e43057867" />
+
+art by @coyoteflowers
+
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/958315fc-446e-4f38-ae24-d1b29bb2f022" />
+
+art by @jamsbunnies
+
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/0a1d175e-2f63-4f0b-8cd0-4f8a094bf16f" />
+
+idk who drew this one actually, i lost their discord and dont know any of their socials :(
+
+PONY COMING SOON :3 
+
+</details>
 <img width="60%" height="60%" alt="image" src="https://github.com/user-attachments/assets/a57b7868-6509-4e3e-bd77-8096424bd15c" />
 
 art by @mochiiniko on tumblr
