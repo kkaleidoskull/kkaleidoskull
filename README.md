@@ -179,8 +179,6 @@ idk who drew this one actually, i lost their discord and dont know any of their 
 
 CHARACTER AND ART BELONG TO ME
 
-PONY COMING SOON :3 
-
 </details>
 <img width="60%" height="60%" alt="image" src="https://github.com/user-attachments/assets/a57b7868-6509-4e3e-bd77-8096424bd15c" />
 
