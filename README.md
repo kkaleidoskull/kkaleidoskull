@@ -177,6 +177,8 @@ art by @jamsbunnies
 
 idk who drew this one actually, i lost their discord and dont know any of their socials :(
 
+CHARACTER AND ART BELONG TO ME
+
 PONY COMING SOON :3 
 
 </details>
