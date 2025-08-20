@@ -1,3 +1,5 @@
+# UNDER 15 THIS ISNT FOR YOU!!!
+
 <img width="540" height="41" alt="image" src="https://github.com/user-attachments/assets/2a5c2b32-90b4-46b6-9b33-df2b2aa02509" />
 
 updated pfp!! art by @tommsiii on twitter
@@ -221,6 +223,8 @@ pretty much the only fandom i care about is fnaf/dsaf. i most likely wont get yo
 
 i dark/comship for coping reasons. i dont have to explain anything to you unless i want to. however i also do NOT believe you have to have trauma to darkship etc. ship whataver u want for whatever reason!! be a problematic freak!! just dont hurt people :)
 
+im an age regressor! im semi verb when regressed. touch/crowd discomf unless safe and big cuddle comf with safes when regressed. general iwecare. im hypersexual and my feelings are heightened when im regressed. pls be aware :<
+
 syscourse dni. im not a system and dont know my stance on any of that. i do have a friend who is an endo system, so dni if you dont like that!
 
 DONT reality check me or tell me to get help. im AWARE im not gregory irl or in an irl relationship with evan. im GETTING HELP. again, dont assume things about me, and if you dont agree with me, just leave me alone
@@ -263,6 +267,8 @@ safe people!!
 ♡ - fizz (@FiZZiEP0P)
 
 ♡ - sam (@mychem3ye)
+
+♡ - soap (@p0staldud3)
 
 ily all licks /p safes can int when i have dni etc and i have hugee cuddle/hide/kiss comf w you guys. plspls dont be offended if youre a friend and arent on this list, it takes time! (i feel more comfy talking and venting to safes, let me know if you dont like that or want removed)
 
