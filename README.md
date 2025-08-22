@@ -1,4 +1,4 @@
-# ⚰️🕊️ UNDER 15 THIS ISNT FOR YOU!!!
+# ⚰️🕊️ UNDER 15 + ANTISHIP THIS ISNT FOR YOU!!!
 
 <img width="540" height="41" alt="image" src="https://github.com/user-attachments/assets/2a5c2b32-90b4-46b6-9b33-df2b2aa02509" />
 
