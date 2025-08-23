@@ -6,7 +6,7 @@ updated pfp!! art by @tommsiii on twitter
 
 [callout doc on jensen/@ccherrypie](https://docs.google.com/document/d/1PZBPPCn5mdzmKCY0bvNtKniAR_rKWLjFJCnQf0ii8yg/edit?usp=sharing)
 
-DONT contact me about this drama. i only have this linked here for awareness, but i no longer want to associate myself with the situation. 
+DONT contact me about this drama. i only have this linked here for awareness, but i no longer want to associate myself with the situation. jensen supporters DNI
 
 ![](checkers.png)
 
