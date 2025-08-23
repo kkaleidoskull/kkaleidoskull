@@ -197,7 +197,7 @@ art by @mochiiniko on tumblr
 
   im an [evertween](https://www.tumblr.com/parxgender/776481213660774400/everkid-evertween-everteen?source=share). bodily 18
 
-  he/him prns and masc terms. xenogender hoarder
+  he/him/silly/stinky prns and masc terms. xenogender hoarder
 
   objectum, fictoromantic, hypersexual and undisclosed para(s)
 
