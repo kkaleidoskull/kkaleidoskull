@@ -235,6 +235,8 @@ also! dear antis: i have a j*b, i shower EVERY DAY, and im in therapy :3 now sho
 
 also also *also*, while i hate that this has to be said, i do NOT support any darkship/fic content (incest, pedophilia, grooming, etc etc) irl. and if you do, FUCK OFF. EW. 
 
+why i have "harmful paras dni": i dont believe there is anything BAD about harmful paras, AS LONG as strictly anti-contact. i believe there is a difference between attraction and abuse. however, harmful paras make me uncomfortable, thus why i dont want them to interact with me. i also believe that maps, zoos and necros, along with anything similar shouldnt advertise their para, especially in a place where children can see it. ex. ponytown. or just advertising it at all, as it is a mental illness and shouldnt be "glorified". i have paraphilias that im not comfortable sharing with anyone who i dont know, or anyone who i know isnt comfortable with it. anyways, thats the end of my tangent, i just wanted to place my opinion here. (note: i dont believe harmful paras should be harassed. or anyone. nobody should be harassed unless they are actively hurting someone. and even then, harassment isnt always the answer)
+
 </details>
 
 <details>
