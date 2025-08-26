@@ -284,3 +284,8 @@ protree psps ily guys ur all so awesome /p /hvypos
 
 <sub>~~i COULD NOT find good security breach themed dividers big sigj~~</sub>
 
+edit: THANK YOU @EvanAfton-Aftoncest for showing me this divider!! ^_^
+
+<img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/a0d4267d-cdd3-4b5e-a0e8-03412e291b11" />
+
+
