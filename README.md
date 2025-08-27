@@ -278,7 +278,7 @@ ily all licks /p safes can int when i have dni etc and i have hugee cuddle/hide/
 
 IF ANY SAFES WANT ME TO MAKE U A SKIN, PLS ASK! :3
 
-protree psps ily guys ur all so awesome /p /hvypos
+protree ily guys ur all so awesome /p /hvypos
 
 <img width="540" height="41" alt="image" src="https://github.com/user-attachments/assets/2a5c2b32-90b4-46b6-9b33-df2b2aa02509" />
 
@@ -287,5 +287,10 @@ protree psps ily guys ur all so awesome /p /hvypos
 edit: THANK YOU @EvanAfton-Aftoncest for showing me this divider!! ^_^
 
 <img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/a0d4267d-cdd3-4b5e-a0e8-03412e291b11" />
+
+<img width="40%" height="40%" alt="image" src="https://github.com/user-attachments/assets/2b464a4e-e481-4ee7-b984-8be889ff36b9" />
+
+AND FOR DRAWING ME THIS AMAZING ART!!! i appreciate it so much :3 /gen /hvypos
+
 
 
