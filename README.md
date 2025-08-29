@@ -22,7 +22,11 @@ do NOT contact me about this drama. i only have this linked here for awareness, 
 
 <details> 
   <summary>graphics hoard (bright colors/flash tw and may be laggy)</summary>
-  
+
+  ![](arcade.gif)
+![](arcade2.gif)
+![](arcade3.gif)
+![](arcade4.gif)
 ![](you-are-not-your-intrusive-thoughts-04.gif)
 ![](recovering-05.gif)
 ![](mi-is-ruining-my-life-01.gif)
@@ -159,6 +163,10 @@ do NOT contact me about this drama. i only have this linked here for awareness, 
 ![](moth3.png)
 ![](moth.png)
 ![](moth2.png)
+![](arcc.png)
+![](arccc.png)
+![](arcccc.png)
+![](arccccc.png)
 </details>
 
 <details> 
