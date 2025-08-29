@@ -1,20 +1,24 @@
+<img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/a0d4267d-cdd3-4b5e-a0e8-03412e291b11" />
+
+---
+
 # ⚰️🕊️ UNDER 15 + ANTISHIP THIS ISNT FOR YOU!!!
 
-<img width="540" height="41" alt="image" src="https://github.com/user-attachments/assets/2a5c2b32-90b4-46b6-9b33-df2b2aa02509" />
-
-updated pfp!! art by @tommsiii on twitter
-
-[callout doc on jensen/@ccherrypie](https://docs.google.com/document/d/1PZBPPCn5mdzmKCY0bvNtKniAR_rKWLjFJCnQf0ii8yg/edit?usp=sharing)
-
-DONT contact me about this drama. i only have this linked here for awareness, but i no longer want to associate myself with the situation. jensen supporters DNI
-
-![](checkers.png)
+![](check.gif)
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=runr4bb)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31s3cguiatu7u5xht7775elutdnm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-![](checkers.png)
+![](star.gif)
+
+[callout doc on jensen/@ccherrypie](https://docs.google.com/document/d/1PZBPPCn5mdzmKCY0bvNtKniAR_rKWLjFJCnQf0ii8yg/edit?usp=sharing)
+
+i know he changed his github and discord. i wont list his new socials because i know people were harassing him. ill be keeping this up though. WE WONT FORGET WHAT YOU DID, JENSEN.
+
+do NOT contact me about this drama. i only have this linked here for awareness, but i no longer want to associate myself with the situation. jensen supporters DNI and BLOCK ME.
+
+![](star.gif)
 
 <details> 
   <summary>graphics hoard (bright colors/flash tw and may be laggy)</summary>
@@ -159,15 +163,11 @@ DONT contact me about this drama. i only have this linked here for awareness, bu
 
 <details> 
 
-<summary>my fursona!</summary>
+<summary>art!!</summary>
 
-name: tattle
+pfp art by @tommsiii on twitter (DOES NOT BELONG TO ME)
 
-species: canine
-
-gender: male/masc
-
-age: puppy
+fursona art:
 
 <img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/08475576-932b-48f0-850b-fb0e43057867" />
 
@@ -179,16 +179,21 @@ art by @jamsbunnies
 
 <img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/0a1d175e-2f63-4f0b-8cd0-4f8a094bf16f" />
 
-idk who drew this one actually, i lost their discord and dont know any of their socials :(
+unknown artist :( i lost their discord and dont know their socials
 
-CHARACTER AND ART BELONG TO ME
+character and art belong to me! his name is tattle!! ^_^
+
+other:
+
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/2b464a4e-e481-4ee7-b984-8be889ff36b9" />
+
+art by @Rainy-chaos-sys (github)
+
+tysm for this amazing art! it makes me so happy when people draw for me!! :3
 
 </details>
-<img width="60%" height="60%" alt="image" src="https://github.com/user-attachments/assets/a57b7868-6509-4e3e-bd77-8096424bd15c" />
 
-art by @mochiiniko on tumblr
-
-![](checkers.png)
+![](star.gif)
 
 <details>
   <summary>about me</summary>
@@ -203,9 +208,9 @@ art by @mochiiniko on tumblr
 
   im proship, profic, pro kodocons, pro non-harmful paras, prokink and pro contradictory labels/all good faith identities. i call myself problematic, just dni/block if that bothers you!
 
-  im a gregory irl (fnaf [sb](https://freddy-fazbears-pizza.fandom.com/wiki/Gregory) and [tftpp](https://freddy-fazbears-pizza.fandom.com/wiki/Gregory_(Tales_from_the_Pizzaplex))). yes, i am getting help. please dont assume things about me
+  im a gregory (fnaf) irl. yes, i am getting help. please dont assume things about me
 
-  i yumeship with [evan afton](https://fivenightsatfreddys.fandom.com/wiki/Crying_Child). i see him as and call him my bf. this does NOT make me a pedo/MAP. yuck
+  i yumeship with evan afton. i see him as and call him my bf. this does NOT make me a pedo/MAP. yuck
 
   #1 glamrock freddy simp /silly
 </details>
@@ -244,7 +249,7 @@ why i have "harmful paras dni": i dont believe there is anything BAD about harmf
   
   almost always afk, offtab or spec
 
-  c+h freely anyone! (unless i have dni/dnt etc ofc)
+  c+h freely anyone! (unless i have dni/dnt etc or am with friends)
 
   DONT copy my skins
 
@@ -253,21 +258,29 @@ why i have "harmful paras dni": i dont believe there is anything BAD about harmf
   im in a friends party, so i wont be able to join your party for supporter stuff etc
 
   i know a lot of people have me blocked, so i very likely could be sitting on someone! if i am, please lmk :')
+
+  following people on github who are friends, protree sitters, or just people i find cool!
   
 </details>
 
-<img width="540" height="41" alt="image" src="https://github.com/user-attachments/assets/2a5c2b32-90b4-46b6-9b33-df2b2aa02509" />
+![](star.gif)
 
-<sub>~~i COULD NOT find good security breach themed dividers big sigj~~</sub>
+<details>
+  <summary>kins</summary>
 
-edit: THANK YOU @EvanAfton-Aftoncest for showing me this divider!! ^_^
+  WIP
+</details>
 
-<img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/a0d4267d-cdd3-4b5e-a0e8-03412e291b11" />
+<details>
+  <summary>yumes (DEAD DOVE ⚰🕊)</summary>
 
-<img width="40%" height="40%" alt="image" src="https://github.com/user-attachments/assets/2b464a4e-e481-4ee7-b984-8be889ff36b9" />
+  WIP
+</details>
 
-AND FOR DRAWING ME THIS AMAZING ART!!! i appreciate it so much :3 /gen /hvypos
+<details><summary>ships (DEAD DOVE ⚰🕊)</summary>
 
-I WILL EDIT README SOON, I KNOW THE BOTTOM IS MESSY
+  WIP
+  </details>
 
+  ![](check.gif)
 
