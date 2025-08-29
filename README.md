@@ -268,6 +268,8 @@ why i have "harmful paras dni": i dont believe there is anything BAD about harmf
   i know a lot of people have me blocked, so i very likely could be sitting on someone! if i am, please lmk :')
 
   following people on github who are friends, protree sitters, or just people i find cool!
+
+  FRIENDS WITH GITHUBS LISTED ON THE LEFT! ILY GUYS SM /P
   
 </details>
 
