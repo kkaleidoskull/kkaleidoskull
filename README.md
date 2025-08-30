@@ -296,3 +296,4 @@ why i have "harmful paras dni": i dont believe there is anything BAD about harmf
 
   ![](check.gif)
 
+<sub>this profile is NOT meant for mobile view!</sub>
