@@ -279,8 +279,53 @@ why i have "harmful paras dni": i dont believe there is anything BAD about harmf
 
 <details>
   <summary>ships (DEAD DOVE ⚰🕊)</summary>
+  
+not all ships are listed! just my faves ^_^ . i wont be putting links for chars already linked in yumes section bc im feeling lazy . cw problematic ships!
+  
+  ☆ gregory x evan (self insert!! <3)
 
-  WIP
+  ☆ rab x [tarbell](https://fivenightsatfreddys.fandom.com/wiki/Tony_Becker) (also a self insert! tony isnt in the yumes section bc i dont really have *feelings* for him, but i see myself as greg in this ship. hard to explain)
+
+☆ michael x mrs afton (SHE DOESNT HAVE A WIKI PAGE but yeah shes his mom <3)
+
+☆ michael x evan
+
+☆ mr x mrs afton
+
+☆ evan x charlie
+
+☆ [cassie](https://freddy-fazbears-pizza.fandom.com/wiki/Cassie) x [roxy](https://freddy-fazbears-pizza.fandom.com/wiki/Roxanne_Wolf)
+
+☆ michael x [ennard](https://freddy-fazbears-pizza.fandom.com/wiki/Ennard)
+
+☆ ennard x themselves
+
+☆ [jeremy](https://freddy-fazbears-pizza.fandom.com/wiki/Jeremy_Fitzgerald) x [toy chica](https://freddy-fazbears-pizza.fandom.com/wiki/Toy_Chica)
+
+☆ jack x [dee](https://dayshift-at-freddys.fandom.com/wiki/Dee_Kennedy)
+
+☆ jack x [dave](https://dayshift-at-freddys.fandom.com/wiki/Dave_Miller)
+
+☆ jack x [harry](https://dayshift-at-freddys.fandom.com/wiki/Harry_Fitzgerald)
+
+☆ [oscar](https://dayshift-at-freddys.fandom.com/wiki/Oscar_Lewinsky) x his suit
+
+☆ gumball x darwin (EVERYONE KNOWS THEM ION NEED LINKS)
+
+☆ [mackenzie](https://blueypedia.fandom.com/wiki/Mackenzie_Border_Collie) x [captain](https://blueypedia.fandom.com/wiki/Captain_Hound)
+
+☆ fluttershy x pinkie pie
+
+☆ [ghostbur](https://dreamteam.fandom.com/wiki/Ghostbur) x [tommy](https://dreamteam.fandom.com/wiki/TommyInnit/SMP)
+
+☆ ghostbur x [phil](https://dreamteam.fandom.com/wiki/Ph1LzA/SMP)
+
+☆ ghostbur x [revivebur](https://dreamteam.fandom.com/wiki/Wilbur_Soot/SMP) (SPECIFICALLY AFTER REVIVAL)
+
+☆ [tubbo](https://dreamteam.fandom.com/wiki/Tubbo/SMP) x [ranboo](https://dreamteam.fandom.com/wiki/Ranboo/SMP)
+
+WIP always a wip
+
 </details>
 
 <details><summary>yumes (DEAD DOVE ⚰🕊)</summary>
