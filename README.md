@@ -324,6 +324,8 @@ not all ships are listed! just my faves ^_^ . i wont be putting links for chars 
 
 ☆ [tubbo](https://dreamteam.fandom.com/wiki/Tubbo/SMP) x [ranboo](https://dreamteam.fandom.com/wiki/Ranboo/SMP)
 
+☆ [salesperson ena](https://enajoelg.fandom.com/wiki/Ena_(Dream_BBQ)) x meanie ena
+
 WIP always a wip
 
 </details>
