@@ -278,21 +278,23 @@ why i have "harmful paras dni": i dont believe there is anything BAD about harmf
 ![](star.gif)
 
 <details>
-  <summary>kins</summary>
+  <summary>ships (DEAD DOVE ⚰🕊)</summary>
 
   WIP
 </details>
 
-<details>
-  <summary>yumes (DEAD DOVE ⚰🕊)</summary>
-
-  WIP
-</details>
-
-<details><summary>ships (DEAD DOVE ⚰🕊)</summary>
+<details><summary>yumes (DEAD DOVE ⚰🕊)</summary>
 
   WIP
   </details>
+
+---
+
+click images for my da/irl wiki links! doubles dni. this includes friends
+
+[<img width="15%" height="15%" alt="image" src="https://github.com/user-attachments/assets/df820d7f-4e9b-4bc2-9483-63f58997a69f" />](https://freddy-fazbears-pizza.fandom.com/wiki/Gregory)
+
+[<img width="15%" height="15%" alt="image" src="https://github.com/user-attachments/assets/65fe74eb-ed46-45cb-b46b-0c012841e23e" />](https://freddy-fazbears-pizza.fandom.com/wiki/Gregory_(Tales_from_the_Pizzaplex))
 
   ![](check.gif)
 
