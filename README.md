@@ -285,7 +285,20 @@ why i have "harmful paras dni": i dont believe there is anything BAD about harmf
 
 <details><summary>yumes (DEAD DOVE ⚰🕊)</summary>
 
-  WIP
+⁠♡ [evan afton](https://fivenightsatfreddys.fandom.com/wiki/Crying_Child)/⁠[golden freddy](https://freddy-fazbears-pizza.fandom.com/wiki/Golden_Freddy)
+
+⁠♡ [michael afton](https://fivenightsatfreddys.fandom.com/wiki/Michael_Afton)/[glamrock freddy](https://triple-a-fazbear.fandom.com/wiki/Glamrock_Freddy)
+
+⁠♡ [charlie emily](https://fivenightsatfreddys.fandom.com/wiki/Charlotte_Emily)/[the puppet](https://freddy-fazbears-pizza.fandom.com/wiki/The_Puppet)
+
+⁠♡ [william afton](https://fivenightsatfreddys.fandom.com/wiki/William_Afton)/[springtrap](https://triple-a-fazbear.fandom.com/wiki/Springtrap)
+
+♡ [jack kennedy](https://dayshift-at-freddys.fandom.com/wiki/Jack_Kennedy)
+
+⁠♡ [mitzi mozzarella](https://www.showbizpizza.com/rae/characters/mitzi.html)
+
+⁠♡ [dook larue](https://www.showbizpizza.com/rae/characters/dook.html)
+
   </details>
 
 ![](star.gif)
