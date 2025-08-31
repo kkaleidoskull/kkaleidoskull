@@ -326,6 +326,8 @@ not all ships are listed! just my faves ^_^ . i wont be putting links for chars 
 
 ☆ [salesperson ena](https://enajoelg.fandom.com/wiki/Ena_(Dream_BBQ)) x meanie ena
 
+☆ [spamton](https://deltarune.fandom.com/wiki/Spamton) x [tenna](https://deltarune.fandom.com/wiki/Tenna)
+
 WIP always a wip
 
 </details>
