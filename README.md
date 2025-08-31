@@ -288,7 +288,7 @@ why i have "harmful paras dni": i dont believe there is anything BAD about harmf
   WIP
   </details>
 
----
+![](star.gif)
 
 click images for my da/irl wiki links! doubles dni. this includes friends
 
