@@ -294,6 +294,8 @@ not all ships are listed! just my faves ^_^ . i wont be putting links for chars 
 
 ☆ evan x charlie
 
+☆ [cassidy](https://fivenightsatfreddys.fandom.com/wiki/The_Missing_Children#Cassidy) x [andrew](https://freddy-fazbears-pizza.fandom.com/wiki/Andrew) x evan
+
 ☆ [cassie](https://freddy-fazbears-pizza.fandom.com/wiki/Cassie) x [roxy](https://freddy-fazbears-pizza.fandom.com/wiki/Roxanne_Wolf)
 
 ☆ michael x [ennard](https://freddy-fazbears-pizza.fandom.com/wiki/Ennard)
