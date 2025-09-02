@@ -236,6 +236,8 @@ i overthink and read into EVERYTHING. im awful at reading people, and im also a 
 
 i dont really have my own personality so i tend to copy people. i act very differently around different people
 
+i have major jealousy issues. i get pissed really easily but i dont express it. if i move away from a cuddle pile, im either overstimmed or pissed at someone. IF IM MAD AT YOU, ITS FOR NO REASON. YOU DIDNT DO ANYTHING (friends)
+
 pretty much the only fandom i care about is fnaf/dsaf. i most likely wont get your fandom references /lh
 
 i dark/comship for coping reasons. i dont have to explain anything to you unless i want to. however i also do NOT believe you have to have trauma to darkship etc. ship whataver u want for whatever reason!! be a problematic freak!! just dont hurt people :)
