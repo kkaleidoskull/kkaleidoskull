@@ -244,6 +244,8 @@ i dark/comship for coping reasons. i dont have to explain anything to you unless
 
 im an age regressor! im semi verb when regressed. touch/crowd discomf unless safe and big cuddle comf with safes when regressed. general iwecare. im hypersexual and my feelings are heightened when im regressed. pls be aware :<
 
+i sometimes use a typ1ng qu1rk, usually when upset. no im not a system and no im not in the hs fandom /lh
+
 syscourse dni. im not a system and dont know my stance on any of that. i do have a friend who is an endo system, so dni if you dont like that!
 
 DONT reality check me or tell me to get help. im AWARE im not gregory irl or in an irl relationship with evan. im GETTING HELP. again, dont assume things about me, and if you dont agree with me, just leave me alone
