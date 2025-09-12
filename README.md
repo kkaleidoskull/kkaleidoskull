@@ -228,7 +228,7 @@ tysm for this amazing art! it makes me so happy when people draw for me!! :3
 <details>
   <summary>byi</summary>
   
-  dni: pro-harassment antis and "freeshippers". radqueers, any pro-c anti-rec harmful paras or harmful paras in general (see bottom of byi), harmful transids. people who dont respect td/tt etc. if youre anti lolicon/shotacon etc. gregory doubles/if youre in a gregory skin. ex friends/friends of ex friends. other than that, ill just ignore/block you if i feel the need to
+  dni: pro-harassment antis and "freeshippers". radqueers, any pro-c anti-rec harmful paras or harmful paras in general (see bottom of byi), harmful transids. people who dont respect td/tt etc. if youre anti l0licon/sh0tacon etc. gregory doubles/if youre in a gregory skin. ex friends/friends of ex friends. IF YOU HARASS ANYONE, STAY AWAY FROM ME. other than that, ill just ignore/block you if i feel the need to
 
 friendly reminder! i wont interact with you if im on your dni, and you shouldnt interact with me either!
 
