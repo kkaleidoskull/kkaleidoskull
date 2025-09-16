@@ -1,3 +1,5 @@
+<sub>will be editing some things soon, but my homestuck hyperfixation is ruling my life atm</sub>
+
 <img width="75%" height="75%" alt="image" src="https://github.com/user-attachments/assets/941d8491-8a99-498e-9661-a7878d37755e" />
 
 
@@ -228,7 +230,7 @@ tysm for this amazing art! it makes me so happy when people draw for me!! :3
 <details>
   <summary>byi</summary>
   
-  dni: pro-harassment antis and "freeshippers". radqueers, any pro-c anti-rec harmful paras or harmful paras in general (see bottom of byi), harmful transids. people who dont respect td/tt etc. if youre anti l0licon/sh0tacon etc. gregory doubles/if youre in a gregory skin. ex friends/friends of ex friends. IF YOU HARASS ANYONE, STAY AWAY FROM ME. other than that, ill just ignore/block you if i feel the need to
+  dni: pro-harassment antis and "freeshippers". radqueers, any pro-c anti-rec harmful paras or harmful paras in general (see bottom of byi), harmful transids. people who dont respect td/tt etc. if youre ANTI l0licon/sh0tacon etc. gregory doubles/if youre in a gregory skin. ex friends/friends of ex friends. IF YOU HARASS ANYONE, STAY AWAY FROM ME. other than that, ill just ignore/block you if i feel the need to
 
 friendly reminder! i wont interact with you if im on your dni, and you shouldnt interact with me either!
 
@@ -240,11 +242,11 @@ i have major jealousy issues. i get pissed really easily but i dont express it. 
 
 pretty much the only fandom i care about is fnaf/dsaf. i most likely wont get your fandom references /lh
 
-i dark/comship for coping reasons. i dont have to explain anything to you unless i want to. however i also do NOT believe you have to have trauma to darkship etc. ship whataver u want for whatever reason!! be a problematic freak!! just dont hurt people :)
+i dark/comship for coping reasons. i dont have to explain anything to you unless i want to. however i also do NOT believe you have to have trauma to darkship etc. ship whataver u want for whatever reason!! be a problematic freak!! just dont hurt REAL people :)
 
 im an age regressor! im semi verb when regressed. touch/crowd discomf unless safe and big cuddle comf with safes when regressed. general iwecare. im hypersexual and my feelings are heightened when im regressed. pls be aware :<
 
-i sometimes use a t1p1ng qu1rk, usually when upset+overstimmed. no im not a system and no im not in the hs fandom /lh
+i sometimes use a t1p1ng qu1rk, usually when upset+overstimmed. (replacing "i"s and sometimes "y"s with "1"s)
 
 syscourse dni. im not a system and dont know my stance on any of that. i do have a friend who is an endo system, so dni if you dont like that!
 
