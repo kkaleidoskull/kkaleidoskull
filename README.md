@@ -1,3 +1,6 @@
+<img width="75%" height="75%" alt="image" src="https://github.com/user-attachments/assets/9d7986e7-f1e3-4d59-ad53-73feadb18278" />
+
+---
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=runr4bb)
 
@@ -172,3 +175,5 @@ To do: Add more graphics :3
 ![](hs18.gif)
 ![](hs19.gif)
 ![](hs20.gif)
+
+<sub>:33 < nothing to see down here!!! x33</sub>
