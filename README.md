@@ -176,4 +176,4 @@ To do: Add more graphics :3
 ![](hs19.gif)
 ![](hs20.gif)
 
-<sub>:33 < nothing to see down here!!! x33</sub>
+<sub>:33 < nothing to see down here!!! x33 - ♌</sub>
