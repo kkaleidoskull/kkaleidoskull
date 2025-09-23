@@ -142,6 +142,8 @@ To do: Add more graphics :3
 ![](push.gif)
 ![](feddy.png)
 ![](dsar.gif)
+![](por.png)
+![](tal.png)
 ![](sprang.gif)
 ![](willy.gif)
 ![](foxy.gif)
@@ -156,6 +158,8 @@ To do: Add more graphics :3
 ![](mikee.png)
 ![](no.png)
 ![](ennard.png)
+![](f1.png)
+![](f2.png)
 ![](sd.png)
 ![](jacks.gif)
 ![](alexg.png)
@@ -196,6 +200,9 @@ To do: Add more graphics :3
 ![](hs18.gif)
 ![](hs19.gif)
 ![](hs20.gif)
-
-
+![](20.gif)
+![](21.gif)
+![](22.png)
+![](23.png)
+![](24.png)
 <sub>:33 < nothing to see down here!!! x33 - ♌</sub>
