@@ -1,5 +1,3 @@
-Song of the week! : Attempt to disagree - wishlane
-
 <img width="75%" height="75%" alt="image" src="https://github.com/user-attachments/assets/9d7986e7-f1e3-4d59-ad53-73feadb18278" />
 
 ---
